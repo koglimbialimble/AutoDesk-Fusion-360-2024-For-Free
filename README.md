@@ -1,5 +1,5 @@
 # AutoDesk Fusion 360 For Free
-Full version of 2024 Autodesk Fusion 360 with activation code for license included. Full version - with activation completely free.
+Full version of 2024 autodesk Fusion 360 with activation code for license included. Full version - with activation completely free.
 -----
 # Download:
 -----
